@@ -1,1 +1,3 @@
-# NotesFrom2022-2025
+# Notes From 2022-2025
+
+Theres not alot no point in reading...
